@@ -1,0 +1,1 @@
+# curriculo---2026-arthur-miguel
